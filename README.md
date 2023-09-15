@@ -22,9 +22,8 @@ I'm always open to new opportunities, collaborations, and interesting conversati
 
 - 📧 Email: [sofosrp@gmail.com](mailto:sofosrp@gmail.com)
 - 💼 LinkedIn: [www.linkedin.com/in/
-sofoklis-repopoulos-817a10259
-](https://www.linkedin.com/in/
-sofoklis-repopoulos-817a10259)
+sofoklis-repopoulos-817a10259]
+  
 
 Let's connect and explore the world of data together! 🚀
 
